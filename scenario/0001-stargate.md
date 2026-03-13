@@ -1,0 +1,3 @@
+# Stargate
+
+The Americans have discoved a stargate in the middle of Lake Michigan. They have determined how to operate it and have sent a team through to the other side. They discover a planet with two suns and a breathable atmosphere and a race of aliens that can be used to manufacture goods that China currently makes. The Americans start trade with Aliens and begin to manufacture goods on the other side of the stargate. Almost overnight China's economy collapses. The UN calls an emergency meeting to discuss the new reality, but the Americans refuse to attend. Russia, China, and Iran seeing an opportunity, declares that the stargate is a weapon of mass destruction and that the Americans are in violation of international law. 
